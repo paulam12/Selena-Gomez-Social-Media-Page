@@ -1,1 +1,0 @@
-# Selena-Gomez-Social-Media-Page
